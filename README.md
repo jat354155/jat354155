@@ -1,6 +1,3 @@
-## **Credit(s)**
-Profile Picture by [KirbyGirlyGamer On Scratch](https://scratch.mit.edu/users/KirbyGirlyGamer "ChickenDogg on DeviantArt")
-
 # Welcome to the most boring profile ever!~
 
 - Hello! I’m [@jat354155](https://github.com/jat354155/jat354155/blob/main/README.md#welcome-to-the-most-boring-profile-ever/ "Contact Methods")!

@@ -12,3 +12,6 @@
 <!---
 If you can read this, you 99% are sneaky enough that you wouldn't follow my scratch... jouldja' do that for me?
 --->
+
+# Credits
+https://github.com/jat354155/jat354155/blob/main/Copy.md#credits
